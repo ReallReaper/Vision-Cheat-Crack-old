@@ -9,6 +9,7 @@ look, I'll be honest, this cheat is rubbish, like everyone lately, the truth, th
 
 
 
-the creators or whatever the hell you want them to be called are these:![imagen](https://user-images.githubusercontent.com/95001569/168650442-6a3e273f-7862-4d97-a445-7cf9c1051805.png)
+the creators or whatever the hell you want them to be called are these:
+![imagen](https://user-images.githubusercontent.com/95001569/168650442-6a3e273f-7862-4d97-a445-7cf9c1051805.png)
 ![imagen](https://user-images.githubusercontent.com/95001569/168650469-e2f5bba4-c70d-47a8-b5dd-52722c7361ba.png)
 ![imagen](https://user-images.githubusercontent.com/95001569/168650495-b58ab77c-995c-410f-86da-59d0abd1f386.png)
